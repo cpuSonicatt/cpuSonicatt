@@ -1,4 +1,4 @@
-![1ac8f1b57a86997485004a55eb6e4b66](https://user-images.githubusercontent.com/18102974/115925846-bafbe300-a479-11eb-978a-09eaa16b2909.png)
+![795148-middle](https://user-images.githubusercontent.com/18102974/115926019-02826f00-a47a-11eb-9938-bbc5fbed6091.png)
 
 
 <!--
