@@ -1,4 +1,4 @@
-![795148-middle](https://user-images.githubusercontent.com/18102974/115926019-02826f00-a47a-11eb-9938-bbc5fbed6091.png)
+<img src="https://user-images.githubusercontent.com/18102974/115926019-02826f00-a47a-11eb-9938-bbc5fbed6091.png" width="33%">
 
 
 <!--
